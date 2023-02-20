@@ -1,4 +1,4 @@
-# Pardeep Pandey
+# Pardeep Pandey :slightly_smiling_face:
 
 * Class Roll No.2229029 
 
@@ -10,5 +10,5 @@
 
 * Game: I love Cricket
 
-:slightly_smiling_face:
+
 
