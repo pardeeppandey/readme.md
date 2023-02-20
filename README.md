@@ -10,4 +10,5 @@
 
 * Game: I love Cricket
 
-🙂
+:slightly_smiling_face:
+
